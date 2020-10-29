@@ -16,4 +16,4 @@ FAQ:
 3. Will there be more features avaiable in the future?
 -The app was made originally for my personal use, if the interest from the community remains high I will add a lot of features that are not essential to me.
 
-4. 
+
