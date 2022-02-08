@@ -1,5 +1,5 @@
 Thank you for your interest in Quick TLC. This File should have all the necessary info for problems you may encounter.
-Otherwise please contact: Adrian Sieradzki at contact@quicktlc.com
+Otherwise please contact: Adrian at bluekewe94@gmail.com
 
 
 
